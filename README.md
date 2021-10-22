@@ -1,2 +1,2 @@
 # portfolio
-Stuff I'm less ashamed to present
+Stuff I'm relatively less ashamed to present
